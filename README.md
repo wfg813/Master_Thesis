@@ -1,3 +1,3 @@
-# Master_Thesis
+# Master Thesis
 
 Questions to yheiser@gmx.de
